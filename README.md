@@ -1,0 +1,1 @@
+# CaseOfGoldenIdolTranslationModding.github.io
